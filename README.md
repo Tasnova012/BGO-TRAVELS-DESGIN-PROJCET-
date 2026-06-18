@@ -61,7 +61,7 @@ THIS IS MY FIRST JOB WHERE I INTERNSHIP AS A DESGINER AND DIGITAL MARKETRING
 
 ## 📬 Contact
 
-📧 info@bgotravels.com  
-📱 +8801618888905
+📧 tasnimprity12@gmail.com
+📱 +8801707492489
 
 ⭐ Feel free to explore my work and connect with me!
